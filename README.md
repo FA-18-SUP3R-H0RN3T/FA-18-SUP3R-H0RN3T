@@ -7,7 +7,7 @@
             '*•.¸♡ ♡¸.•*''*•.¸♡ ♡¸.•*'
                 <p align="left"> 
 <img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/bd08b35b-285e-40f0-bba7-9ace782b8ba6" />
-<img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/9dce9f8d-8908-4869-b9fe-11249643f8a4" />
+<img width="300" height="500" alt="@warcriminalz" src="https://github.com/user-attachments/assets/9dce9f8d-8908-4869-b9fe-11249643f8a4" />
 <p align="right"> 
 ︶ .     ⠀ -ˏˋ⋆ ${\textsf{\color{#555555}Welcome}}$ ⋆ˊˎ-
     <p align="left"> 
